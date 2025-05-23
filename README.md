@@ -6,7 +6,7 @@
 
 🔭 Actualmente trabajando en matenimiento y soporte de diversos sistemas dentro de una agencia de aduana y colaborando con las funciones de QA para lo mismo.
 
-🌱 Aprendiendo mpas acerca de la IA mediante un diplomado específico en inteligencia artificial.
+🌱 Aprendiendo más acerca de la IA mediante un diplomado específico en inteligencia artificial.
 
 📫 Cómo contactarme: mfloresurtubia@gmail.com / https://www.linkedin.com/in/miguel-flores-u/
 
